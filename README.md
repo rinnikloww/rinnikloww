@@ -1,54 +1,60 @@
  <p align="center">  
-  <img src=https://64.media.tumblr.com/6d70ac5a72029d2af62a99a83dd793d7/bbc5ddf314bce065-ed/s400x600/f90cc0cfa2d68203d9e70386c07c6fd6cfc9acac.pnj </div>
+  <img src="https://64.media.tumblr.com/2e5c2f10cf1cdf9a7d8d65107ea071c3/17e56c69ffb64f87-5b/s2048x3072/bb794730697cb49731624abb0bc33c2269e9c343.pnj" width="700" height="700" </div>
 
  
  <p align="center">  
- <img src="https://64.media.tumblr.com/2f2ba2f6c842dd5776108de874820c73/0d26ca0873522886-fd/s2048x3072/11af33d146dbfdb4a41bd080b073e9ffeb16e77c.gifv" width="600" height="600" border="16"/> 
-
+ <img src="https://64.media.tumblr.com/67352011a753ad48e8fa1c9813cbcae3/a502d63b9aa9a157-61/s1280x1920/b4c91146a8295bf48e5abcbaa9c3cdacd7492bad.gifv" width="700" height="700" border="16"/> 
 
 
 <h4> <p align="center"> 
- <img src=https://64.media.tumblr.com/tumblr_mbrms8UZ5i1qid2nw.gif> 𝙰𝚜𝚑 /𝙰𝚜𝚑𝚕𝚎𝚢 <img src=https://64.media.tumblr.com/tumblr_mbrms8UZ5i1qid2nw.gif> </p>
+ <img src=https://64.media.tumblr.com/c81b1d261453af9bf371e81b2581b720/e366956bbbb4723c-16/s75x75_c1/5d9f4208a2ad387435536dc516baf290976581e2.gifv> 𝙰𝚜𝚑 /𝙰𝚜𝚑𝚕𝚎𝚢 <img src=https://64.media.tumblr.com/c81b1d261453af9bf371e81b2581b720/e366956bbbb4723c-16/s75x75_c1/5d9f4208a2ad387435536dc516baf290976581e2.gifv> </p>
 <p align="center">
-   <img src=https://supplies.ju.mp/assets/images/gallery04/383d083f.gif?v=1c1ba870>𝚊𝚍𝚞𝚕𝚝<img src=https://supplies.ju.mp/assets/images/gallery04/b5467e0d.gif?v=1c1ba870> (18) 𝚠𝚊𝚜𝚒𝚊𝚗 <img src=https://i.postimg.cc/Sxt18pN8/gay-mlm-20px-6-stripes.png/> <img src=https://i.postimg.cc/1533YLnz/non-binary-4-stripes-20-px.png/>  ! ! 𝚎𝚗𝚐/𝚛𝚞𝚜 ₊˚
+   <img src=https://64.media.tumblr.com/30071d9e1afe8deb80303d5800efe2e2/1772854da6a99e02-32/s75x75_c1/d312814e59171322f302bdbf0fb4d9066f98e336.gifv>𝚊𝚍𝚞𝚕𝚝<img src=https://64.media.tumblr.com/30071d9e1afe8deb80303d5800efe2e2/1772854da6a99e02-32/s75x75_c1/d312814e59171322f302bdbf0fb4d9066f98e336.gifv > (18) 𝚠𝚊𝚜𝚒𝚊𝚗 <img src=https://i.postimg.cc/Sxt18pN8/gay-mlm-20px-6-stripes.png/> <img src=https://i.postimg.cc/1533YLnz/non-binary-4-stripes-20-px.png/>  ! ! 𝚎𝚗𝚐/𝚛𝚞𝚜 ₊˚
 <p align="center"> 
   ₊˚𝚍𝚎𝚙𝚛𝚎𝚜𝚜𝚒𝚘𝚗 𝚊𝚗𝚍 𝚋𝚙𝚍! 💤 ＩＴ/ＴＨＥＹ₊˚</p>
 <p align="center"> 
   ₊˚artist / editor ! # 1 krusie fan <img src=https://sweetie.crd.co/assets/images/gallery02/c59ce932.gif?v=d780b57c>
   <img src=[https://i.postimg.cc/Sxt18pN8/gay-mlm-20px-6-stripes.png](https://64.media.tumblr.com/58a86299007199c863a2a5b867991ebf/c80e85c672fd2385-18/s75x75_c1/043819ccb3de7148fd6bba714f4693a6e69de56d.gifv)/> 
- 
- <p align="center"
-  
- ![](https://64.media.tumblr.com/6d70ac5a72029d2af62a99a83dd793d7/bbc5ddf314bce065-ed/s400x600/f90cc0cfa2d68203d9e70386c07c6fd6cfc9acac.pnj)
+<div align="center" 
+
+[atabook](https://rinniklow.atabook.org/) ![](https://64.media.tumblr.com/718bc4f5453d0195abfc4e88e7e3f650/68cc4c3aba15cb6a-15/s75x75_c1/6b9abc6b41dfe5d8e846037be8916bd36e2faf2b.gifv) [straw page](https://rinnikloww.straw.page/)
+![](https://64.media.tumblr.com/9e3f054efb6f82961e65460cb0478aed/68cc4c3aba15cb6a-5a/s75x75_c1/0c511a69d75f0c1c8270bded14d57b7e8c85bdfb.gifv) [steam](https://steamcommunity.com/id/rinnikloww/)
+
+<div>
+
+ <p align="center">  
+  <img src="https://64.media.tumblr.com/2e5c2f10cf1cdf9a7d8d65107ea071c3/17e56c69ffb64f87-5b/s2048x3072/bb794730697cb49731624abb0bc33c2269e9c343.pnj" width="700" height="700" </div>
 
 
 <div align="center">
 
 
  
-   ![](https://64.media.tumblr.com/59e24f6391932ac6b0e6e083643732d8/0d26ca0873522886-09/s100x200/788c94342560281c4afeccf0112b5892a8f46ec1.gifv)
-    ![](https://64.media.tumblr.com/c75b588f801467c3bb4aeab6aec6f903/7ff15572939cc448-2e/s75x75_c1/1afd4c8708b4940324c8c96efcd9c23e8ab10be9.gifv)
+   ![](https://64.media.tumblr.com/a048e5c8634459322b72733ad22d2f4a/cbcfc1adbb9fbf6f-87/s75x75_c1/16a9bd22bfd59a4c325f96d8cc2dc70c4ca72c6c.gifv)
+    ![](https://64.media.tumblr.com/94b54a3682d6d638d825f9753e3c5d1e/08791a6e0aa366fe-ff/s75x75_c1/126d80d25d408984dea5d31480660bc100f79bab.pnj)
    [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=03usi1odjftquomkkcc2x266x&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=974eb1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
-   ![](https://64.media.tumblr.com/c75b588f801467c3bb4aeab6aec6f903/7ff15572939cc448-2e/s75x75_c1/1afd4c8708b4940324c8c96efcd9c23e8ab10be9.gifv)
-    ![](https://64.media.tumblr.com/59e24f6391932ac6b0e6e083643732d8/0d26ca0873522886-09/s100x200/788c94342560281c4afeccf0112b5892a8f46ec1.gifv)
+   ![](https://64.media.tumblr.com/94b54a3682d6d638d825f9753e3c5d1e/08791a6e0aa366fe-ff/s75x75_c1/126d80d25d408984dea5d31480660bc100f79bab.pnj)
+    ![](https://64.media.tumblr.com/d14b37068d618a89c4b7a47b0fb0ddb5/cbcfc1adbb9fbf6f-e6/s75x75_c1/5894507cc9e6b8d2a92cab65205eb4631f494e35.gifv)
+ 
+  <img src=https://64.media.tumblr.com/611e2880a098b91d6b4598c2c457b46e/1772854da6a99e02-91/s100x200/245c9a8818fdae3c95a4a8847bea0fa50eb9dbd5.pnj>
+  <img src=https://64.media.tumblr.com/32cdcdfa362ee4c6d15b1f651e6c5794/1772854da6a99e02-53/s100x200/edec7ddabb10783f7f89296ff428a87007aa63c4.gifv>
+<img src=https://64.media.tumblr.com/f6dfb48aa8c21b3ad10afb292b98f572/612879508e1e71d3-2d/s100x200/69554a39aa6ce1870bcd8f0dcb2c831c8fa988f6.pnj>
+ <img src=https://64.media.tumblr.com/2b6bcd6d26c858e3856f6a7f6d04af1c/1772854da6a99e02-d8/s100x200/12342508c70502126274c2aaa1c9c8535331f9e1.gifv>
+<img src=https://64.media.tumblr.com/7f075407cac6ee114437827208905a8e/612879508e1e71d3-5f/s100x200/cdf383ead75d4bd1a9556b66850cd6e0bce7ab2f.gifv>
+<img src=https://64.media.tumblr.com/644cfc0362d0179efb93cdd62e460d70/af9f47ae56290b28-16/s250x400/40b62b26984d0dd19addcfed8b040ba510e58bc1.gifv>
+</div>
+<div>
+<img src=https://64.media.tumblr.com/bae0277e7cb7ee595025ac1ac777423a/a2c22d45d485e6f7-f7/s100x200/ea100caa76907ab2bb6e0c5964cbe96a786d3c8c.pnj>
+<img src=https://64.media.tumblr.com/34275374441e872c3453a91a80884fa4/51513407471ed0ec-21/s250x400/255899bff609051f7b44795c302bbbd236b7ddb8.gifv>
+<img src=https://64.media.tumblr.com/5661aa0778e0377a67de622a235f06d6/51513407471ed0ec-8d/s250x400/1df0f29e0e5639ba1e725fe2d8fa1c8f5e7abd06.gifv>
+<img src=https://64.media.tumblr.com/b54ab06b31f3b249c3761fa47ffcce19/c50dc93c89e251e3-0b/s100x200/0f8f9fc05f768db6e06ea16e7b5969191d247e4b.pnj>
+<img src=https://64.media.tumblr.com/22f7e0335dc3151afb3a241fea4ed3eb/3052e5e9935eef72-47/s250x400/cbd1f9ef6858343436f173d41568f322985e7cbb.gifv>
 
-<div align="center" 
 
- <h3> <p align="center"> 
-  BYF!! </p>
-
- <h4> <p align="center"
-
-𝖨 𝗁𝖺𝗏𝖾 𝗇𝗈𝗍𝗁𝗂𝗇𝗀 𝗍𝗈 𝗌𝖺𝗒 𝖺𝖻𝗈𝗎𝗍 𝗆𝗒𝗌𝖾𝗅𝖿 𝖻𝗎𝗍! 𝗂𝗆 𝖺 𝗌𝗍𝗎𝖽𝖾𝗇𝗍 𝖺𝗇𝖽 𝗂𝗆 𝗉𝗁𝗒𝗌𝗂𝖼𝖺𝗅𝗅𝗒 𝖺𝗇𝖽 𝗆𝖾𝗇𝗍𝖺𝗅𝗅𝗒 𝗂𝗅𝗅 (𝗁𝖾𝖺𝗋𝗍 𝗉𝗋𝗈𝖻𝗅𝖾𝗆𝗌 𝖺𝗇𝖽 𝖺𝗇𝗑𝗂𝖾𝗍𝗒 𝖽𝗂𝗌𝗈𝗋𝖽𝖾𝗋), 𝗉𝗅𝖾𝖺𝗌𝖾 𝖻𝖾 𝗉𝖺𝗍𝗂𝖾𝗇𝗍 𝗐𝗂𝗍𝗁 𝗆𝖾, 𝗍𝗁𝖾𝗌𝖾 𝗍𝗁𝗂𝗇𝗀𝗌 𝖽𝗈 𝗇𝗈𝗍 𝖺𝗅𝗅𝗈𝗐 𝗆𝖾 𝗍𝗈 𝗅𝗂𝗏𝖾 𝗂𝗇 𝗉𝖾𝖺𝖼𝖾!  
- 𝖨'𝗆 𝗊𝗎𝗂𝗍𝖾 𝗍𝖺𝗅𝗄𝖺𝗍𝗂𝗏𝖾 𝖺𝗇𝖽 𝗎𝗌𝗎𝖺𝗅𝗅𝗒 𝖼𝖺𝗅𝗆, 𝖨 𝖽𝗈 𝗂𝗅𝗅𝗎𝗌𝗍𝗋𝖺𝗍𝗂𝗈𝗇𝗌, 𝖿𝖺𝗇 𝖺𝗋𝗍, 𝖺𝗇𝖽 𝖼𝗁𝖺𝗋𝖺𝖼𝗍𝖾𝗋𝗌.
-![](https://supplies.ju.mp/assets/images/gallery05/0d818745_original.gif?v=1c1ba870)
-  𝖨'𝗏𝖾 𝖻𝖾𝖾𝗇 𝗈𝗇 𝗍𝗁𝖾 𝖨𝗇𝗍𝖾𝗋𝗇𝖾𝗍 𝖿𝗈𝗋 𝖺 𝗏𝖾𝗋𝗒 𝗅𝗈𝗇𝗀 𝗍𝗂𝗆𝖾 𝖺𝗇𝖽 𝖨 𝗄𝗇𝗈𝗐 𝖺 𝗅𝗈𝗍 𝗈𝖿 𝖿𝖺𝗇𝖽𝗈𝗆𝗌!! :3 𝗂 𝗍𝖺𝗅𝗄𝗂𝗇𝗀 𝗈𝗇𝗅𝗒 𝗂𝗇 𝖾𝗇𝗀𝗅𝗂𝗌𝗁 𝖻𝗎𝗍 𝖺𝗅𝗌𝗈 𝗂 𝗄𝗁𝗈𝗐 𝗋//𝗌𝗌𝗂𝖺𝗇 𝖺𝗇𝖽 𝗎𝗄𝗋𝖺𝗂𝗇𝗂𝖺𝗇(𝗉𝗅𝗌 𝗎𝗌𝖾 𝗈𝗇𝗅𝗒 𝖾𝗇𝗀 𝖾𝗏𝖾𝗇 𝖽𝗆!), 𝗂𝗆 𝖿𝗋𝗈𝗆 𝗆𝗈𝗇𝗀𝗈𝗅𝗂𝖺𝗇 𝖺𝗇𝖽 𝗎𝗄𝗋𝖺𝗂𝗇𝗂𝖺𝗇 𝖿𝖺𝗆𝗂𝗅𝗒𝗌 𝖺𝗇𝖽 𝗂 𝗅𝗈𝗏𝖾 𝗁𝗒𝗌𝗍𝗈𝗋𝗒 𝖺𝗇𝖽 𝗅𝗂𝗍𝖾𝗋𝖺𝗍𝗎𝗋𝖾 !
-![](https://sweetie.crd.co/assets/images/gallery06/96134dc6.gif?v=d780b57c) </h5>
+ 
+</div>
 
 <div>
  
-<p align="center"
-
- ![](https://64.media.tumblr.com/47810d86acbc943612e1afa5fad4c7be/af9f47ae56290b28-ce/s250x400/079d71ce95dcf66d49ba2461b83ab158a658dcff.gifv)
- ![](https://64.media.tumblr.com/c0ae8168aee0d3f5073e99c4b8a6a70d/af9f47ae56290b28-1d/s250x400/d609b813f54f0efd95126b0d12f5e0f668e7f275.gifv)
- ![](https://64.media.tumblr.com/0e2c1537594973b9db8a46115cc03935/af9f47ae56290b28-17/s250x400/a883e0d3c22dec611576299108e5584722c2e20c.gifv)
+ <p align="center">  
+  <img src="https://64.media.tumblr.com/9dd83b5cd51b0a65f2af7d62bd49d217/cff3247bf887df33-d9/s2048x3072/9c2c8e837538f6bec11b3cad17df7c76b967cb0b.pnj" width="700" height="700" </div>
