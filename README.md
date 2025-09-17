@@ -25,6 +25,7 @@
 [atabook](https://rinniklow.atabook.org/) ![](https://64.media.tumblr.com/718bc4f5453d0195abfc4e88e7e3f650/68cc4c3aba15cb6a-15/s75x75_c1/6b9abc6b41dfe5d8e846037be8916bd36e2faf2b.gifv) [straw page](https://rinnikloww.straw.page/)
 ![](https://64.media.tumblr.com/9e3f054efb6f82961e65460cb0478aed/68cc4c3aba15cb6a-5a/s75x75_c1/0c511a69d75f0c1c8270bded14d57b7e8c85bdfb.gifv) [steam](https://steamcommunity.com/id/rinnikloww/) ![](https://64.media.tumblr.com/bfc4f64c583d5dd516c8251762900e3b/267d7072e8aa371c-9a/s75x75_c1/752ff031c91cfb3c1a1036099309cb7c6289a6de.gifv) [toyhouse](https://toyhou.se/rinnikloww)
 
+
 <div>
 
  <p align="center">  
@@ -53,6 +54,8 @@
 <img src=https://64.media.tumblr.com/5661aa0778e0377a67de622a235f06d6/51513407471ed0ec-8d/s250x400/1df0f29e0e5639ba1e725fe2d8fa1c8f5e7abd06.gifv>
 <img src=https://64.media.tumblr.com/b54ab06b31f3b249c3761fa47ffcce19/c50dc93c89e251e3-0b/s100x200/0f8f9fc05f768db6e06ea16e7b5969191d247e4b.pnj>
 <img src=https://64.media.tumblr.com/22f7e0335dc3151afb3a241fea4ed3eb/3052e5e9935eef72-47/s250x400/cbd1f9ef6858343436f173d41568f322985e7cbb.gifv>
+
+![](https://komarev.com/ghpvc/?username=rinnikloww&color=green)
 
 <div>
  
