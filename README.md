@@ -1,15 +1,15 @@
 <p align="center">  
- <img src="https://64.media.tumblr.com/a5e33de86c6557e31a8cd244290d40d6/2c31eb2d3ab36a97-11/s400x600/c4363f85952c82dccd33a9b263cc26cede91b713.pnj"idth="700" height="700">
+ <img src="https://64.media.tumblr.com/a5e33de86c6557e31a8cd244290d40d6/2c31eb2d3ab36a97-11/s400x600/c4363f85952c82dccd33a9b263cc26cede91b713.pnj"idth="400" height="400">
 
 <p align="center">  
-  <img src="https://64.media.tumblr.com/e614abab097c67766d39fac18b76b4c8/a8ec03f701c6463d-7a/s2048x3072/9e5263c7f92a09082e3253e42bd9df0bc4dca892.pnj" width="700" height="700" </div>
+  <img src="https://64.media.tumblr.com/e614abab097c67766d39fac18b76b4c8/a8ec03f701c6463d-7a/s2048x3072/9e5263c7f92a09082e3253e42bd9df0bc4dca892.pnj" width="500" height="500" </div>
 
  
  <p align="center">  
- <img src="https://64.media.tumblr.com/094ebf30370b13197b47e3bc62dc5f6a/9f166f3bd40d0a00-c7/s2048x3072/721ffc36735169510b2d6e8003e88072193c262d.pnj" width="700" height="700" border="16"/> 
+ <img src="https://64.media.tumblr.com/094ebf30370b13197b47e3bc62dc5f6a/9f166f3bd40d0a00-c7/s2048x3072/721ffc36735169510b2d6e8003e88072193c262d.pnj" width="500" height="500" border="16"/> 
 
  <p align="center">  
-  <img src="https://64.media.tumblr.com/e614abab097c67766d39fac18b76b4c8/a8ec03f701c6463d-7a/s2048x3072/9e5263c7f92a09082e3253e42bd9df0bc4dca892.pnj" width="700" height="700" </div>
+  <img src="https://64.media.tumblr.com/e614abab097c67766d39fac18b76b4c8/a8ec03f701c6463d-7a/s2048x3072/9e5263c7f92a09082e3253e42bd9df0bc4dca892.pnj" width="500" height="500" </div>
 
 <h4> <p align="center"> 
  <img src=https://64.media.tumblr.com/c81b1d261453af9bf371e81b2581b720/e366956bbbb4723c-16/s75x75_c1/5d9f4208a2ad387435536dc516baf290976581e2.gifv> 𝙰𝚜𝚑 /𝙰𝚜𝚑𝚕𝚎𝚢 ,,, or 𝙱𝚕𝚞𝚟𝚒𝚎 / 𝚁𝚒𝚗 <img src=https://64.media.tumblr.com/c81b1d261453af9bf371e81b2581b720/e366956bbbb4723c-16/s75x75_c1/5d9f4208a2ad387435536dc516baf290976581e2.gifv> </p>
@@ -28,7 +28,7 @@
 <div>
 
  <p align="center">  
-  <img src="https://64.media.tumblr.com/2e5c2f10cf1cdf9a7d8d65107ea071c3/17e56c69ffb64f87-5b/s2048x3072/bb794730697cb49731624abb0bc33c2269e9c343.pnj" width="700" height="700" </div>
+  <img src="https://64.media.tumblr.com/2e5c2f10cf1cdf9a7d8d65107ea071c3/17e56c69ffb64f87-5b/s2048x3072/bb794730697cb49731624abb0bc33c2269e9c343.pnj" width="500" height="500" </div>
 
 
 <div align="center">
@@ -57,7 +57,7 @@
 <div>
  
  <p align="center">  
-  <img src="https://64.media.tumblr.com/9dd83b5cd51b0a65f2af7d62bd49d217/cff3247bf887df33-d9/s2048x3072/9c2c8e837538f6bec11b3cad17df7c76b967cb0b.pnj" width="700" height="700" </div
+  <img src="https://64.media.tumblr.com/9dd83b5cd51b0a65f2af7d62bd49d217/cff3247bf887df33-d9/s2048x3072/9c2c8e837538f6bec11b3cad17df7c76b967cb0b.pnj" width="500" height="500" </div
  
 </div
 
@@ -67,14 +67,14 @@
 
 <div alignt="center"
  <p align="center">  
-  <img src="https://64.media.tumblr.com/e614abab097c67766d39fac18b76b4c8/a8ec03f701c6463d-7a/s2048x3072/9e5263c7f92a09082e3253e42bd9df0bc4dca892.pnj" width="700" height="700" </div>
+  <img src="https://64.media.tumblr.com/e614abab097c67766d39fac18b76b4c8/a8ec03f701c6463d-7a/s2048x3072/9e5263c7f92a09082e3253e42bd9df0bc4dca892.pnj" width="500" height="500" </div>
 
  
  <p align="center">  
- <img src="https://64.media.tumblr.com/218966fbd12d2315b81d1fc62b888638/ed5481054e664fc4-d2/s1280x1920/2772082f18fbe01d5d03cfa9c0794bd9251a75dc.pnj" width="700" height="700" border="16"/> 
+ <img src="https://64.media.tumblr.com/218966fbd12d2315b81d1fc62b888638/ed5481054e664fc4-d2/s1280x1920/2772082f18fbe01d5d03cfa9c0794bd9251a75dc.pnj" width="500" height="500" border="16"/> 
 
  <p align="center">  
-  <img src="https://64.media.tumblr.com/e614abab097c67766d39fac18b76b4c8/a8ec03f701c6463d-7a/s2048x3072/9e5263c7f92a09082e3253e42bd9df0bc4dca892.pnj" width="700" height="700" </div>
+  <img src="https://64.media.tumblr.com/e614abab097c67766d39fac18b76b4c8/a8ec03f701c6463d-7a/s2048x3072/9e5263c7f92a09082e3253e42bd9df0bc4dca892.pnj" width="500" height="500" </div>
  
 ![](https://64.media.tumblr.com/bfc4f64c583d5dd516c8251762900e3b/267d7072e8aa371c-9a/s75x75_c1/752ff031c91cfb3c1a1036099309cb7c6289a6de.gifv) Before u interact ! ![](https://64.media.tumblr.com/bfc4f64c583d5dd516c8251762900e3b/267d7072e8aa371c-9a/s75x75_c1/752ff031c91cfb3c1a1036099309cb7c6289a6de.gifv)
 
@@ -111,7 +111,7 @@ also i can take one-two commishion for discord nitro!! and im slow artist bc of 
 more gallery in my straw page or any social media! (insta/twt!)
 
 ![](https://64.media.tumblr.com/60b942f14ca8de7ed7d90ca4f07cc647/c87adbf042de6f9b-17/s2048x3072/b66d9ba836a0f8575876915f41f8fc53f02d1060.pnj)
- <img src="https://media.discordapp.net/attachments/903407782777196598/1417650397413245041/Blank_9_Grids_Collage.png?ex=68cb4151&is=68c9efd1&hm=1ac340a6d81c4b3b7e20ae70babacd7614737dcc5b6e033f068b7b573613bf52&=&format=webp&quality=lossless&width=950&height=950" width="700" height="700" border="16"/> 
+ <img src="https://media.discordapp.net/attachments/903407782777196598/1417650397413245041/Blank_9_Grids_Collage.png?ex=68cb4151&is=68c9efd1&hm=1ac340a6d81c4b3b7e20ae70babacd7614737dcc5b6e033f068b7b573613bf52&=&format=webp&quality=lossless&width=950&height=950" width="500" height="500" border="16"/> 
 ![](https://64.media.tumblr.com/60b942f14ca8de7ed7d90ca4f07cc647/c87adbf042de6f9b-17/s2048x3072/b66d9ba836a0f8575876915f41f8fc53f02d1060.pnj)
 
 </div>
